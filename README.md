@@ -1,1 +1,1 @@
-# mychies.id.github.io
+# mychies.my.id
